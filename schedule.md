@@ -1,10 +1,10 @@
-###Friday### 
+###Friday
 
 InstallFest starts at 7pm, finishes at around 9pm
 
 It would be awesome if some of your could come earlier than that so that we can prepare everything and be generally ready for the students arriving at 7pm. There will be pizza and drinks.
 	
-###Saturday###
+###Saturday
 
 8:00   breakfast arrives
 
