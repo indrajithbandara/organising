@@ -10,7 +10,7 @@ It would be awesome if some of your could come earlier than that so that we can 
 
 9:00   students arrive, eat breakfast, mingle
 
-9:30   opening preso (5-10 mins), demos (10 mins?)
+9:30   opening preso (5 mins), demos (10 mins)
 
 10:00  divide into groups, start teaching
 
